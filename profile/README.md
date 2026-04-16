@@ -1,5 +1,5 @@
 # Take It From So
 
-[Website](https://TakeItFromSo.weebly.com)
+[Website](https://TakeItFromSo.AdamGreenberg.com)
 
-[Photos](https://TakeItFromSo.AdamGreenberg.com)
+[Photos](https://TIFS.AdamGreenberg.com)
